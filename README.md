@@ -8,3 +8,4 @@ Names and Animals
 5. Josh Li - Cat
 6. Shamin Mashalkar - Dog
 7. Ashish Khari - Dog
+8. Paul Gabriel Ongtenco - Shark
