@@ -7,4 +7,5 @@ Names and Animals
 4. Feras Alayoub - German Shepard
 5. Josh Li - Cat
 6. Shamin Mashalkar - Dog
-7. Paul Gabriel Ongtenco - Shark
+7. Ashish Khari - Dog
+8. Paul Gabriel Ongtenco - Shark
