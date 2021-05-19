@@ -15,4 +15,5 @@ Names and Animals
 12. Viliami Tufui-Niu — Snake
 13. Justin Nguyen - Sloth
 14. Henzon Zambrano - Wolf
+15. Eddie Lopez - Dog
 
