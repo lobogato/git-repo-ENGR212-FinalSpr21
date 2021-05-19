@@ -10,4 +10,10 @@ Names and Animals
 7. Ashish Khari - Dog
 8. Paul Gabriel Ongtenco - Shark
 9. Bhuvaneshwar Shanil Prasad - Rhino
-10. Eddie Lopez - Dog
+10. Keerthi Manogna Buska - Dog
+11. Stiofan Condon - Dog
+12. Viliami Tufui-Niu — Snake
+13. Justin Nguyen - Sloth
+14. Henzon Zambrano - Wolf
+15. Eddie Lopez - Dog
+
