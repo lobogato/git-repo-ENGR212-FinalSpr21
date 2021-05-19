@@ -10,4 +10,6 @@ Names and Animals
 7. Ashish Khari - Dog
 8. Paul Gabriel Ongtenco - Shark
 9. Bhuvaneshwar Shanil Prasad - Rhino
-10. Stiofan Condon - Dog 
+10. Keerthi Manogna Buska - Dog
+11. Stiofan Condon - Dog
+
